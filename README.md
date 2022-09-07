@@ -3,4 +3,4 @@ Terra-Era Manufacturing
 
 Made by Nikolai and Nikolai
 
-We make out mods FUNNY and UNORIGINAL @tm
+We make our mods FUNNY and UNORIGINAL @tm
